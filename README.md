@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **raushangupta2231@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/18br8YFqwH6LR2LXdKBKI_Fl3mzhdIeWc/view?usp=drivesdk](https://drive.google.com/file/d/18br8YFqwH6LR2LXdKBKI_Fl3mzhdIeWc/view?usp=drivesdk)
+- 📄 Know about my experiences [https://drive.google.com/file/d/18br8YFqwH6LR2LXdKBKI_Fl3mzhdIeWc/view?usp=drivesdk](https://drive.google.com/file/d/1tkTDU7oDaHV-5P2FzuqqZNC6ny_vCabw/view)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
